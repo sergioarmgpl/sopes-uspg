@@ -1,0 +1,10 @@
+Jonathan 80%
+Rudy 80%
+Chavajay 80%
+Gerson 80%
+Majo 80%
+Sofi 80%
+Franz 80%
+Francisco 80%
+Maselli 80%
+Santis 80%
